@@ -9,4 +9,12 @@ One of my **favorite** things they have is their underwater observatory they've 
 
 >The Fish Bowl underwater observatory floats in the main spring and allows an up-close view of the spring and the fish and manatees. A live-feed television screen is located on the sundeck, allowing visitors to view fish and manatees from an underwater perspective.
 
+And there's _so much to do_ you won't get bored!
 
+* Birding
+* Wildlife Viewing
+* Hiking/Nature Trail
+* Picnics
+* Tours
+
+And then there's the **Manatees**!
