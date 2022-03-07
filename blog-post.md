@@ -18,3 +18,13 @@ And there's _so much to do_ you won't get bored!
 * Tours
 
 And then there's the **Manatees**!
+
+The manatee come every winter to swim in the natural spring waters that are naturally kept above 70°F, which keep them happy and warm during the cold season. If you go during the winter, you're sure to see a lot of them swimming around the waters.
+
+Don't forget about Lu, their residential, 6,000LB Hippo! He's been with the park since the 70's when the park was also used to house animal TV actors, before the park was even a state park. He's even an _honorary citizen of Florida_:
+
+>Lu, a hippopotamus, was one of the Ivan Tors animals and still resides at the park after being declared an honorary citizen of the state of Florida by then Governor Lawton Chiles. 
+
+If you ever get the chance to visit Central Florida, Homosassa Springs State Park should be on your list of to-do's!
+
+
